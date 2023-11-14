@@ -15,3 +15,8 @@ D&C88:122 - edified together
 
 how do we help learners comes prepared spiritually?
 i am not a victim, i am an agent who can ACT, who can go to the Lord to answers and revelation.
+in sacrament meeting or classes, someone is struggling to give a talk or teach in a class, we can pray for that individual. You can engage that speaker with your own eyes and with a smile and with encouragement.
+
+how to empower more teachers? teachers role to serve learners. learning designer - design a learner experience. who the learner needs to become. who am I trying to serve? what do they need? what can i be doing to help more people? common thread > best teachers are made from the best students of the scriptures. Jesus Christ, there is nobody who learned better than Him. Nobody a better disciple. Best teacher and leader of all-time. So good to master learning.
+
+
