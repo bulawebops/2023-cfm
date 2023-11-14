@@ -1,3 +1,5 @@
+[return to main page](https://github.com/bulawebops/2023-cfm/tree/main/README.md)
+
 # Learning is becoming more like God. 
 Is sin a form of learning? No, but repentance is. Sin takes you away from God but repentance draws you closter to God to become more like Him. That's learning. Suppose you want to learn how to paint, you become like Him by enhancing your creative abilities. Perhaps you're an accountant or are really great with numbers, and if you are doing those things, building, making things have more order and clarity, that's becoming like God. So, take advantage of the gift of agency so you can choose to become like God.
 
