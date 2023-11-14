@@ -19,4 +19,10 @@ in sacrament meeting or classes, someone is struggling to give a talk or teach i
 
 how to empower more teachers? teachers role to serve learners. learning designer - design a learner experience. who the learner needs to become. who am I trying to serve? what do they need? what can i be doing to help more people? common thread > best teachers are made from the best students of the scriptures. Jesus Christ, there is nobody who learned better than Him. Nobody a better disciple. Best teacher and leader of all-time. So good to master learning.
 
+### Rules for Learning
+Run, jump, dig, pain, explore, examine, experiement, ponder etc. > pre-school.
+### Rules for Parents
+Watch and listen
 
+#### Good coaching > model what you teach
+Ask yourself, are you designing a learning experience for them to learn vs. watch and listen to you.
