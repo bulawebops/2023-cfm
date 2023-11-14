@@ -26,3 +26,9 @@ Watch and listen
 
 #### Good coaching > model what you teach
 Ask yourself, are you designing a learning experience for them to learn vs. watch and listen to you.
+
+### Four E's of learning
++ Explanations
++ Exhortations (inviting us)
++ Example
++ Experiences
