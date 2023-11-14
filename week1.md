@@ -12,3 +12,6 @@ won't share  <=>  this is boring
       Holy Ghost
 teachers <=>  learners
 D&C88:122 - edified together
+
+how do we help learners comes prepared spiritually?
+i am not a victim, i am an agent who can ACT, who can go to the Lord to answers and revelation.
